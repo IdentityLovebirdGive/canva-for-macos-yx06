@@ -1,4 +1,4 @@
-# 
+# Enhance Canva for macOS with new Brushes for Canva for macOS - smart objects and asset management, the #1 brush. Includes smart objects and asset management for a smoother and
 
 
 
